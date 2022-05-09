@@ -22,3 +22,5 @@ test3
 * 1
 ## Rewards
 * +1
+## Session Record
+* [Github](https://github.com/Continuation-of-Ashford/quest-reports/blob/main/2022-05/2022-05-09%20-%20begna112%20(Nicky5)%20-%20test3.md)
