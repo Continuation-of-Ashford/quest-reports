@@ -26,3 +26,7 @@ Kasr
 * 1000xp
 ## Rewards
 * +1 longsword (Nicky)
+# Quest Report
+Author: begna112 (Nicky5)
+## Report
+* We went into the mines and killed badguys.
