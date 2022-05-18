@@ -32,3 +32,7 @@ Port Red Key
 * 5000exp
 ## Rewards
 * Jo'Jo get 2 free downtimes for the quest report
+# Quest Report
+Author: Ehks (Sebastian5, Logan6)
+## Report
+* see Quest reports channel
