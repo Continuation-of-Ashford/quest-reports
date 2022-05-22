@@ -38,3 +38,7 @@ Port Red Key
 * Necklace of Adaptation - Poppy
 * Earing of Message- Bastielle
 * Whoever does the quest report first gets two downtimes
+# Quest Report
+Author: Ehks (Bastielle7, Logan6)
+## Report
+* See Quest report channel
