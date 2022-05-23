@@ -26,3 +26,22 @@ Kasr Village
 * Ignore Me (J8 A5) Asterios is carrying heavy weight for merchants in Kasr (25 roll: 75 GP)
 * Last_Username (D5Z6) Zhax finishes building his farm
 * Juko (RB7, VH5) Rob is working for 161gp (23roll)
+# Quest Report
+`Author: Last_Username (D5Z6)
+
+`
+Got to deal with them sahuagin
+
+Went to Sahaugin cave
+
+Saw mind flayer sushi bar
+
+Killed a mind flayer and its sahuagin thralls
+
+One mind flayer got away
+
+Went down one floor, saw two regular mind flayers and one big armored one doing some big ritual
+
+Ran away immediately
+
+It is important that everyone panics immediately.
