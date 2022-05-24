@@ -26,10 +26,19 @@ Kasr Village
 * Ignore Me (J8 A5) Asterios is carrying heavy weight for merchants in Kasr (25 roll: 75 GP)
 * Last_Username (D5Z6) Zhax finishes building his farm
 * Juko (RB7, VH5) Rob is working for 161gp (23roll)
+## Gold (Each)
+* 1000
+## XP (Each)
+* 4200
+## Rewards
+* Rob boss gains staff of birdcall
+* Godfrey gains Elemental Gem, Red Corundum
+* Alston gains a Potion of clairvoyance and a block of gunpowder.
+* Bastielle gains a pearl of power
+* Asterios gains +1 halberd
 # Quest Report
-`Author: Last_Username (D5Z6)
+`Author: Last_Username (D5Z6)`
 
-`
 Got to deal with them sahuagin
 
 Went to Sahaugin cave
