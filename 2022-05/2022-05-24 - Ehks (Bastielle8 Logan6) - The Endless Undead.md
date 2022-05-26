@@ -16,7 +16,11 @@ Kasr
 * Krieg (Vulluin 3)
 * Sedation [Vasreth 4]
 ## Downtimes
-* -
+* Bastielle continues work on her outpost (3/4)
+* Vulluin works, and uses his report downtime working for a total of 75 gold
+* Kadri will do medicinal workings and earn 100gp
+* Asterios works carrying stuff for the local merchants in Kasr and make 60GP
+* Vasreth is working around town earning 52 gp
 ## Gold (Each)
 * 100
 ## XP (Each)
