@@ -33,3 +33,8 @@ Kasr Village
 * Poppy - drift globe
 * Felix - a potion of Water Breathing 
 * shroud  -  Wand of Magic Detection
+# Quest Report
+`Author: [5] Maniac | Kam’za’brok`
+
+
+Kam'za'brok begins training and gains 600 xp
