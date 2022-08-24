@@ -33,3 +33,12 @@ Kasr Village
 * Cal gets the Pearl of Power
 * Felix gets a Cloak of the Manta Ray
 * Junior Gets the Wave Caller Horn
+# Quest Report
+`Author: Chug(Gil11,Mac9,Zhir7,Olive6)`
+
+
+*A mission report in terrible handwriting is left by Blorg*
+
+&nbsp;
+
+Welp. We did it- we killed that fat bastard. My plan to put a bag of holding inside another worked like a charm. Fatty almost held onto his throne when we caused the big hole in reality- but it snapped shut, sending the jerks ass to the astral plane while his fat head stayed in his throne- nice and detached. Good thing I didnt tell the party about the 40KGP I found hidden in a chest behind his throne.....wait this is going on the mission report board isnt it....well shit
