@@ -28,3 +28,8 @@ Port Red Key
 * 3.4K EXP
 ## Rewards
 * Yes
+# Quest Report
+`Author: Ignore Me J14|A10|T6`
+
+
+Don't go to Quethyr, you will wish you die. Also just by looking at it you will make your situation worse. I am not even joking or running a scam on you, believe me. -Junior
