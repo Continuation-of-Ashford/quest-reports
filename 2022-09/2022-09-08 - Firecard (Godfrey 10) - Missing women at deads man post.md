@@ -30,3 +30,16 @@ Dead mans post
 * Chik-Tha - bag of holding
 * Tabasnos -  Wand of Paralysis 
 * JOJO - pearl of power
+# Quest Report
+`Author: Last_Username (S13, H5)`
+
+
+*A piece of paper that seems to have been torn out of a journal is recovered in the adventurers' guild.*
+
+Found first thinking creatures since crash.  Their communication is primitive.  Could only speak to one.  Safety in numbers, so stuck with him.  
+
+Sent to track down other missing fleshy two-leggers in town full of them.  Went to building full of them with more of their disgusting fleshy bodies uncovered - a revolting experience.  One with least clothing told us missing people were in sewers, so we went.
+
+We found the missing women.  Escorted them to the surface.  Deeper sewers had demons and  witch with several enthralled guards. The witch knocked me out with an icy blast- when I came to, the guards were arguing with us over their dead comrades.  
+
+Scent overwhelming me.  Left sewers. Hope to find shelter in forest near town.  Hope to find rest of clutch here.  Must be here.
