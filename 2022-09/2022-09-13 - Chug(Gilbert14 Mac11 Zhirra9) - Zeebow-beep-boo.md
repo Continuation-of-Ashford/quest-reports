@@ -28,3 +28,12 @@ Moonrest
 * 2.3K EXP
 ## Rewards
 * All get one superior Healing Potion
+# Quest Report
+`Author: Ignore Me J14|A11|T7`
+
+
+So I(Junior) spent the last week resting in my hammock on the lower deck of Blorg’s new ship, resting , reading some of my city reports backlog, while the rest of the team was mapping the road to Tapthyr island. They spotted a pirate island and I took a good rest during my stay-on-board-vacation but I was starting to get bored and it was time to explore the island itself. 
+
+So we (Captain Blorg, Calindal, Bastielle, Felix, Cairnas and me myself I (**Theoderik Gibbousmoon the second, Princeps of the freehold of Port Red Key**) went to the ruins on the shore, a former shipyeard I guess, in ruins, with destroyed statue of some unpleasant feylord one shouldn’t name out loud (do you hear me Calindal?). The place was empty of valuable, except for some exploration materials at a recently made camp. The camp had Henry Wilabee’s name all over the place. Well, technically, his name wasn’t there but it was his material for mine and underground exploration with his name voluntary stroke from the boxes and equipment, so I guess someone is trying too hard. His team went inland a few days before we reached their camp and with the lack of people and the dual fey nature of the place, I doubt it went well.
+
+So we debated if we should go after them to loot their corpses and maybe face the locals or if we should go visit pirate island, 100 miles off Moonrest coast (and 400 miles from my place). Me and few other voted to stay but most people voted to go to pirate town. So pirate town here we comes.
