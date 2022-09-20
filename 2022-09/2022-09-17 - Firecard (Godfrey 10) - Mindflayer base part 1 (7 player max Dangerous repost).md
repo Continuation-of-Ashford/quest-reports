@@ -34,3 +34,20 @@ dead mans post
 * Urisk - gains rare component
 * Felix - Glamerweave 
 * +1 Trident - Calindal
+# Quest Report
+`Author: Ignore Me J14|A11|T7`
+
+
+We (Calindal, Poppy, Shroud,Cairnas, Felix, Urisk, Mac and *me, myself , I*,  Junior) went to that damn lake to kill those damn Illitihs. Just so “lazy I am too busy to be here” Godfrey could expand his control over the nearby plain. We had a contract with that damn lichlike wizard for Mindanos to bring them back some mindflayer brain stuff/tyrant so he could fail in his research dramaticaly and we can end up having to kill him when the damn mind brain takes him over later. The damned client is king, I guess. Damn, I like to write damn today.
+
+&nbsp;
+
+I casted water breathing and we all swam like sinking anchor to the illithid lair. We did hide the lichthing teleporting thing nearby first and then encountered MIND sharks and their sahugin raiders. All dead, no problem. We then reached a locked door. Poppy used her magic thingie to DING it open and we entered a Illithid base corridor. We entered and met a floating ball of energy who turned out to be the security system. After a brilliant speech that only him can give, Mac started a fight with the thing and it went down quickly and ended up with it self destructing. We entered the next room by the only door at the end of the corridor.
+
+&nbsp;
+
+It was a circle of Illithid pods, full of humans undergoing ceremorphosis, centered around a bird-bathlike thing, full of illithid larvas. Around 10 of them. We didn't know what to do so poppy went to the control system, some kind of elf chained to the place and took it out (RIP poor elf).
+
+&nbsp;
+
+10 illithid “projection” suddenly appeared in the room and stated attacking us on sight. They ganged  on Cairnas. I manage to run to the door to take cover and snipe on occasion and the rest of the team manage to regroup and kill many of those creatures. Then the 10 actual illithid exited their pods. And one of the illithid managed to throw Cairnas into the pond of larva, which you can guess isn't good. We decided to retreat, the rest of the group by teleportation, me with my legs. We did regroup later at the surface and spent our time trying to find a way to save Cairnas from an horrible fate. Urisk too a long rest to prepare Major restoration and we teleported again to Moonrest so Gwyn could help us get ride of the 5 larvas I spotted under cairnas skin. They did cast the spell 6 times, and the sixth time it did nothing. So we assumed that Cairnas is saved. We should keep an eye on him but don't be dick, okay, he fought well, it's not his fault. We gonna need to go back, I guess. Another place to take care of, I still need to go finish the business with the Kythons.
