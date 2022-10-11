@@ -28,3 +28,24 @@ dead mans post
 * 2.1k exp
 ## Rewards
 * None
+# Quest Report
+`Author: Gentleman (Xia 4)`
+
+
+Hunting a monster
+
+&nbsp;
+
+Winter is coming in the area around dead-man's post. Snow has begun falling and people talk about unhappy spirits/monsters appearing in the woods. People talk of possession and crafting silvered weapons to combat them. 
+
+&nbsp;
+
+We'd been told the task is near Mors Graveyard at a hospital abandoned by elves long ago. We were tasked with "exorcising" whatever was there. After preparing we set out. Along the way we ran into a floating winter crystal that was noted to be a gate into the feywild. Nonetheless, we continued on and ran into Thomas the traveler, a man of large stature. He didn't have much information for us, and so we set on.
+
+&nbsp;
+
+Eventually we reach the hospital. It only has one floor. Once we entered inside, we encountered specters and wraiths. The hospital itself was decrepit and it seems as though the patients were treated unethically. We met heavy resistance, but were able to persevere. After collecting ectoplasm as proof of the job being completed we headed back.
+
+&nbsp;
+
+-Xia
