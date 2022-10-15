@@ -31,3 +31,16 @@ Port Red Key
 ## Rewards
 * 7k drug money for the settlement to Chen for muscle in Chen Casino
 * adamantine ore - skrom
+# Quest Report
+`Author: Gentleman (Xia 5)`
+
+
+The mission was to assist a a merchant with a delivery. Those who accepted the job met up at a bar in Port Red Key. After about three hours, we are told to head to a location by the bartender. As we head there, we came across the merchant along the way. They led us to their shop to tell us about the mission. 
+
+&nbsp;
+
+We were tasked with delivering cargo, and if Chen allows them to setup a shop in his settlement they will give the settlement a big gold boost to get it running. We are to deliver the cargo to a fish merchant in Moonrest . We would need to locate him in the port district. Helping to sell the goods there would also earn us a bonus.
+
+&nbsp;
+
+Along the road, we came across an adamantine meteor and together Chen and Skrom mined it out, just enough to make one suit of armor from it. A few days later, we came across a very ornate dagger and brought that along. A few bearded, chain, and barbed devils later we encountered the masked man we saw in the underdark before. He offered us assistance and we were able to enter Moonrest without having to travel the entire way. After a bit of a philosophical debate, we dropped off the cargo and completed the mission.
