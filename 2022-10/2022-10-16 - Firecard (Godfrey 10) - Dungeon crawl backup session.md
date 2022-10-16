@@ -34,3 +34,24 @@ dead mans post
 * 2k exp
 ## Rewards
 * None
+# Quest Report
+`Author: Kha (Chen 5)`
+
+
+Dungeon crawl backup session
+
+&nbsp;
+
+We entered the dungeon fairly easily and had a small explore around to find a room where a ritual had taken place, after leaving the room we found a Giant Jade Spider, the party defeated it with overwhelming magic and moved on. 
+
+&nbsp;
+
+We found a magical metal statue but we closed the door and left it alone, no thank you!
+
+&nbsp;
+
+We then looted some boxes and the rest of the party triggered some oozes where Lu Xie died. We beat the oozes and Lu Xie came back to life, strange?
+
+&nbsp;
+
+We then got attacked by some crystal minotaurs which we defeated and decided that was enough crawling for one day
