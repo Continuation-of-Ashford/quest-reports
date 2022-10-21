@@ -24,3 +24,8 @@ Kasr village
 * 3100
 ## Rewards
 * 10 lbs of scarp metal
+# Quest Report
+`Author: Ignore Me J14|A11|T9|WD4`
+
+
+So we went to explore Logan’s haunted forest. I saw the druid died fighting that damn blue dragon, I owned him at least to help his friend Mac clean his house. The local goblins were quite concerned by the regular tremors in the ground and warned us of the many dangers in the forest and under it. Mac wanted to go check his old laboratory in the forest. We entered his ruined former house, noticing how the aging of the place was unnatural. Mac opened the secret opening to his “private I didn’t even told Logan” invention cave… and ended up in a giant complex cave system, quite modern and full of Mac developed construct (all aggressive), traps and enigma. Mac claimed to have never seen the place. We cleaned two levels and are planning to come back for the final(?) floor(s?). That place is full of really weird thing, like what I have read about the other cave in this forest. Whatever is causing it is quite the powerful magical phenomenon.
