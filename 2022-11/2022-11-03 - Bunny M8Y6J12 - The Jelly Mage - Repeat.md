@@ -22,3 +22,8 @@ Kasr Village
 * -
 ## Rewards
 * -
+# Quest Report
+`Author: Bunny M8,Y6,J12`
+
+
+Merrick sent out a group of adventures to find missing adventures. This group never returned. Merrick is frustrated
