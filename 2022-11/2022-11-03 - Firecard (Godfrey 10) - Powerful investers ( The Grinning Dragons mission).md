@@ -28,3 +28,12 @@ Iredrop
 * 1k exp
 ## Rewards
 * None
+# Quest Report
+`Author: Kha (Chen 8)`
+
+
+**Powerful Investors**
+
+&nbsp;
+
+I was tasked today with meeting investors for the Grinning Dragons, I brought my two most trusted advisers, Quill and Shin-Chi. The investors were not to my taste but I'm sure they have a place in this world. We spoke back and forward for a while before calling on an old Friend. After we spoke for a while the old friend agreed form a guild within the Iredrop ||Smugglers Den||.
