@@ -24,3 +24,8 @@ Moon Rest
 * 0 XP
 ## Rewards
 * No extras
+# Quest Report
+`Author: Ignore Me J15|A11|T9|WD6`
+
+
+So we went to check why Blorg wasn't showing up and because Felix did cast true seeing before entering the queen's throne room we know what's going on in pirate town: Aboleths are taking over. We did our best not to start a fight and walked back to the queen's right hand to set up a plan not involving us fighting all the aboleths at the same time.
