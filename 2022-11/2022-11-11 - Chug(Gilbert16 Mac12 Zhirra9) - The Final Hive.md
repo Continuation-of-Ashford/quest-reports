@@ -30,3 +30,8 @@ Port Red Key
 * Junior gets the Immovable Rod
 * Momo gets the Bag of Devouring
 * Poppy got 1 partial relief of a 'Gear Gun'- and an etching of celestial bodies
+# Quest Report
+`Author: Ignore Me J15|A11|T9|WD6`
+
+
+Full report is in the files, a proper summary of our exploration was too long for the small amount of characters allowed here. - Signed: Junior.
