@@ -24,3 +24,8 @@ dead mans post
 * 1.5k exp
 ## Rewards
 * None
+# Quest Report
+`Author: Ignore Me J16|A11|T10|WD6`
+
+
+The mission was a total success, we managed to convince a celestial Dove of Ilmater to meet a bird obsessed idiot and managed to get a Temple of Bhal destroyed by Geoffroy guards! 100% Success rate! The William Dices Quality!
