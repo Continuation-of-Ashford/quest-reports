@@ -30,3 +30,16 @@ dead mans post
 * 5 uses of wyvern poison - Booker
 * Henderson - scrolls of haste, planer binding, detect thoughts and Acid arrow.
 * Glenn learns from the witch of Dartmoor which allows him to learn at dead man's posts and gives him double learning.
+# Quest Report
+`Author: aaazzzrrr (Calindal 17, H10)`
+
+
+Our journey began in Dead Man's Post, a routine expedition. On our first days, we met the witch near the settlement and got some scrolls for me to scribe later, and then later in the orc village as well.
+
+&nbsp;
+
+On the way we fiund a rock of silver. We excavated it for its materials on our way back. The day was uneventful, except for an excursion with assassins that seemed to be well equipped and none of us knew who sent them. Perhaps they were simply bigger thieves.
+
+&nbsp;
+
+We met a githyanki we were looking for after a tip from the witch. We concluded our meeting with a an agreement; the githyanki inventor, one that is currently attempting to fix their spelljammer, will work for us as a magical item crafter and be helped in that regard. They were sent to Port Red Key to man the luxury enchanter for others' leisure. That was when we concluded our journey and returned back home.
