@@ -34,3 +34,8 @@ Kasr
 * high quality ink - Hiderion
 * 6 identical keys - Kristya
 * Unending Rope - Kristya
+# Quest Report
+`Author: Ehks (Bastielle15, Cordilia4)`
+
+
+The adverturers explored 2 new sub-sections of the dungeon. There was a mini maze that contained a minotaur and 6 chests found in dead ends that each contained a paltry sum of gold and a key. The other section was another "underwater" area that contained drowned.
