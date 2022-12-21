@@ -31,3 +31,16 @@ Dead Man's Post
 ## Rewards
 * Poppy got a ring of spell storing and diamond for 3K
 * Everyone else got a potion of superior healing and 1 potion of resistance (of their choice)
+# Quest Report
+`Author: Ignore Me J18|A11|T10|WD6`
+
+
+So the island city of Trasinger (a really advanced technologically and backward politically if you ask me) asked us continental rulers to solve their weird magical (???) pandemic problem. Because they obviously tried nothing and it’s not working. So they sent their flying machine (a spelljammer, I think) to Godfrey’s place (note to self: invest 14k gold into the city Airship dock even if the teleported circle isn’t finished yet, we all have the time to finish it later). Godfrey then spent all his time in his PRIVATE room with the ambassador, leaving everyone else (me, Calindal, Bastielle, Felix and Poppy) outside, tasting his glorious hospitality. 
+
+When his welcome was done, we all embarked that really big and beautiful flying ship and travelled to their fiery island. The information we obtained from the sky sailors was that the disease(let’s assume it is a disease) was now inflecting poorer people whereas it was only going after rich people before.
+
+So we reached the city, ended up having to listen to their anti-magic speech again, and went on a shopping and information spree. Okay Calindal and Geoffrey went after the information, Poppy and me went after magic items and Felix after entertainment. I got an overprice magical light crossbow, Poppy got one of those damn ring of spell storing (I am jealous) and we both paid far too much money for both (that’s not true, I overpaid, Poppy paid around the right price). I don’t know if Felix had his fun.
+
+Geoffrey interviewed a local healer and yes something is happening, we just aren’t sure it’s really a disease. May be something stupid Melvin freed and teleported back to this poor city for all we know. The investigation is ramping up.
+
+- Junior
