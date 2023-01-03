@@ -24,3 +24,8 @@ dead mans post
 * 3k exp
 ## Rewards
 * None
+# Quest Report
+`Author: Zwets (Warryn 8 | Alston 7)`
+
+
+https://discord.com/channels/638910062244528158/651242550186868783/1059830120480784402
