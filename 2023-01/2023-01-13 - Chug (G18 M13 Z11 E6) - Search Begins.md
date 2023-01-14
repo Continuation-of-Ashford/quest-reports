@@ -26,3 +26,8 @@ Port Red Key
 * 4K EXP
 ## Rewards
 * All got 1 potion of Possibility
+# Quest Report
+`Author: Ignore Me J19|A11|T11|WD8`
+
+
+Full report is in Reports. Also i gifted 1000 gold pieces to each player who took part in this adventure.
