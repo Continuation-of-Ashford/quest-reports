@@ -26,3 +26,18 @@ Moonrest
 * 9000
 ## Rewards
 * 10 Sling Bullets of Althemone to Junior
+# Quest Report
+`Author: Ignore Me J19|A11|T11|WD8`
+
+
+Calindal got an important dream sent to him by Sehanine Moonbow, godess of dreams, warning him of troubles for a group of incoming traders, transporting material from my town (Port Red Key) to the city of Moonrest. Drows were supposedly involved.
+
+I, me, myself, Theoderik Gibbeousmoon II couldn’t allow such disturbance to the life-flow of my own city: commerce. So Poppy, Cairnas, Felix, Calindal and me went to see what was happening.
+
+And surprise surprise, we found abandoned carts full of fishes (a pointless thing to trade between the two cities, something isn’t right) abandoned with dead horses and missing merchants. And what do I spot in the hills, 3 drows like creatures, hiding quite well. Well not exactly drowns, but close and not exactly spider like the driders. So I started the negotiation round and I shot my best shot with an opening argument to them. We won, one of them escaped barely alive with powerful magic (etherealness) despite my best efforts, one was killed by Felix and Poppy and one was captured by Cairnas and Calindal. It turned into a weird half spider (not unlike but not at all like a drider, it was weird). We ended up killing it too.
+
+So Poppy found the last remaining tracks of the prisoners being dragged away, toward Port Red Key, and after wasting time waiting for Calindal to cast his flying mount back to life (may have saved us later) and making us one of his usual boring motivation speeches, we followed those tracks. 
+
+And we found the source of our problems: a priest of Vhaeraun, the son god of Lolth and Corellon, a drow Mask wannabe and ally extraordinaire, Shar’s favorite spellcasting friend. Bullshit all over, if you ask me. Kinda big but not as big as the ego and the lips of his priest. Or as big as the demonic portal they opened with the blood of the now dead merchants. Another fight and after a taking a beating, we triumphed, barely. Poppy masterfully used her wabajack to turn the priest into a rat and her Tink to catch him and fly it out of the fight allowing us to kill his two bodyguards, kill the demon he summoned and winning the day. The polymorphed priest prayers reached his god because he was teleported away. Can’t wait to hear him rant again.
+
+Sehanine Moonbow warned Calindal that more troubles and probably more Calindal speeches were coming. I need to remember to cast Rary telepathy on everyone when it happens.
