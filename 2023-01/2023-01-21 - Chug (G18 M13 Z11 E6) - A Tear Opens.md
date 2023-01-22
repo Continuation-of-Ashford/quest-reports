@@ -26,3 +26,28 @@ Shea's Wake
 * 5.1K EXP
 ## Rewards
 * Cairnas gets 1 rare component
+# Quest Report
+`Author: aaazzzrrr (Calindal 19, H12, L4)`
+
+
+Cataclysm in the Salt Flats
+
+&nbsp;
+
+Such wonders I would not dream of seeing in all my life. Such death and misery. Some days, doubt besets me if peace is ever possible in this land. This was one of those days.
+
+&nbsp;
+
+It was an emergency, a cry for help. A horrible sundering of the Weave occured in the depths of the Salt Flats. Horrific monstrosities from the Nine Hells, the Far Realm, the Abyss, Carceri. Every imaginable horror. Our world was being torn asunder before our eyes. A whirlwind of constructs of the old Durothil and the abominations of the extraplanar, all fighting senselessy. We sprinted, flew through crevices, soared over the jagged rocks, flying towards the epicenter of the wound. A gateway, a portal to a plane we realized later to be Carceri.
+
+&nbsp;
+
+A fool of a halfling caused this, a halfling by the name of Melvin. Playing with the fabric of the world, he, a child, unraveled it. We bid him to fix his mistake. He did. He transported us out. He didappeared.
+
+&nbsp;
+
+When the time comes, I will safeguard this land from interlopers like him.
+
+&nbsp;
+
+Calindal of Moonrest
