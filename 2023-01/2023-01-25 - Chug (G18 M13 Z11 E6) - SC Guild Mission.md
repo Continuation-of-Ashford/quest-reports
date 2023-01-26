@@ -28,3 +28,42 @@ Moon Rest
 * 4.1K EXP
 ## Rewards
 * All recive an extra 300GP from donations
+# Quest Report
+`Author: aaazzzrrr (Calindal 19, H12, L4)`
+
+
+We met on an auspicious day, when the divine Seldarine granted us their visions and aid. Gwyneth's mark from a time ago, was told by Gilbert the wizard to be the work of a creature we do not know. My senses detected, for a single moment, aided by divine intervention... a fey creature. Gilbert, with his analysis, gave us additional clues and it all added to become a thread of truth. Silan took that thread, and using his mastery in the arcane, woven it into a fabric that told a story through scrying. Visions in his mind, foretelling that the presence that sought us... was right outside our keep. Troubling. We followed that trail, together. We knew our crusade was guided by the Lunar Lady's hand, and perhaps her servants.
+
+&nbsp;
+
+Without any delay, we marched forward into the wilds, following the scent of fey. Forests of tooth fairies, ancient hardwood, a living jungle in the middle of the peninsula. We were adjacent to the feywild, and each of us knew so. The journey took us through a forest thick with vines that I cut through with great effort. The path revealed itself. We found ourselves in a temple, lost to time.
+
+&nbsp;
+
+Faelyn knew this temple, knew the people that lived there. Her memories came back in droves even before we entered the grounds, when we walked the trail. Her past faith, now found again, where once many warrior women like her walked the halls.
+
+&nbsp;
+
+After much wandering and examination of the temple, Cairnas beckoned us to come to the tomb. The ground was strewn with bones, and the walls contained sarcophagi. Opening them, we discovered magical items. Items we did not need. We left to enter the main chamber, and discovered the site of a battle. A statue, dedicated to the service of a goddess we later came to know. As we decided to move forward, Faelyn moved to turn back. We beckoned her to stay, and find peace in her grief, the memories of loss and death becoming too much to bear for her.
+
+&nbsp;
+
+Then suddenly, Gwyneth became possessed under the control of Lurue, fey deity of the pegasi. The former goddess of Faelyn. One she knew well. She bid her to go, and assist us in cleansing the wayshrine. To right the wrongs of the past, to stop the Disciples of the White Rod, those vile followers of Loviatar and the killers of Faelyn's sisters. When I demanded she tell us if she was truly an ally, she disappeared. Troubling. After this crusade has concluded, we must decide Faelyn's fate.
+
+&nbsp;
+
+What followed soon after is almost too embarassing to record. Cairnas, in his mad greed, began looting the sarcophagi we left, already carrying with him some of the weapons and armor of the entombed. My heart was soft for him, and great conflict reigned in my mind over how to handle it. I commanded all to cease their arguing over the occasion, and bid Cairnas to cease his looting, for we were not going to participate in it. Cairnas refused. I tried to appeal to his senses, to our friendship, and tried to make him realize his folly. It did not work. Gaulderscion and Silan sprung into action, attempting to stop the madness as quickly as possible, while Faelyn watched from the sides.
+
+&nbsp;
+
+
+
+Things looked dire, until Gwyneth summoned her strength and pleaded to the Watcher of Souls for aid. Cairnas' madness was cleansed, for the time. A psyche broken months ago on that accursed day I fought Cuen... my greatest mistake was not noticing it sooner. We gathered our wits, returned the sacred relics, and set off to finish our mission. To face Loviatar's disciples, and conclude our crusade once and for all.
+
+&nbsp;
+
+May the Watcher of Souls harden my heart,
+
+&nbsp;
+
+Calindal of Moonrest
