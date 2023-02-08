@@ -32,3 +32,12 @@ dead mans post
 * 5k
 ## Rewards
 * Extra downtime - for quest report
+# Quest Report
+`Author: Ignore Me J20|A12|T11|WD8`
+
+
+With the armies of Rak Tulkhesh circling around my city of Port Red Key and ready to destroy it, the Lords Alliance took the decision to pay Correlian 100 000 Gold Piece for the military support of the New London troops. (100 000 GP to follow later). Worse offers (some of them faaaaar worse) were refused.
+
+&nbsp;
+
+All adventurers are reminded that helping the construction of the Army Keep in Port Red Key is a priority and will be paid **2000GP** (*per downtime*) until it’s built and able to help us defend the city. Helping to build the circle of teleportation and evacuate the civilian quicker will provide the helping adventurer with 500 GP (*per downtime*).
