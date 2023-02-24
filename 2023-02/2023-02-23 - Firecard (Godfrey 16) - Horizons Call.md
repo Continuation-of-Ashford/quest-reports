@@ -28,3 +28,8 @@ Dead mans post
 * 5k exp
 ## Rewards
 * None
+# Quest Report
+`Author: Ignore Me J20+1|A13|T12|WD8`
+
+
+We had a diplomatic meeting with House Baenre, a dark elves house from the underdark and due to the current Invasion situation where we were kinda forced to accept a few bad deals involving capturing one the Raktulhkesh devil Lieutenant and giving him to the drown, agreeing to steal some TOP SECRET stuff from **CENSORED** and ensure that some warlord stop causing problems to the drows. None of those deals made anyone but the drows happy but that’s politics in time of war. - Junior
